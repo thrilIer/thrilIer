@@ -5,9 +5,6 @@
 <a href="https://academy.atabook.org">ATABOOK</a>    + WIP
 </p>  
 <p align="center">
-⸺⸺⸺⸺
-</p>
-<p align="center">
 aimar . ݁⠀he ╱ him    ︔   14 y/o 
 </p>
 <p align="center">
