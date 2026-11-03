@@ -13,6 +13,3 @@ whisper to interact as i'm most of the time AFK,
 <p align="center">
 but i'm up to c+h anytime, no need to ask
 </p>
-<p align="center">
-⸺⸺⸺⸺
-</p>
